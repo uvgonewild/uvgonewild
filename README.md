@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @uvgonewild
+- 🎮 I am an expirienced Indie Game Developer
+- 🔐 Ongoing Cybersecurity & Ethical Hscking course
 - 👀 I’m interested in Tech Related Stuff
 - 📫 How to reach me uvgonewild@outlook.com
 
